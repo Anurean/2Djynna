@@ -1,5 +1,5 @@
 # 2Djynna
-A psychological dump due to E.S.P. technologies gone astray
+A psychological dump of life saving commands due to E.S.P. technologies gone astray
 
 
 
@@ -14,3 +14,18 @@ I do appologize if and when I do damage to someone's delicate psyche.
 Which does occur durring psychotic episodes....
 
 We all do have delicate psyches....
+
+
+
+Watch this... I am about to make my cousin Gwen go mindnumb again for a month through my powers of E.S.P.
+She's asleep at the moment in Kansas.
+
+
+
+My name is Gwen Rees-Spade.
+I like weenies and I seriously hate men.
+My husband has a weenie.
+My boys have weenies.
+I like their weenies. I dislike them.
+I am here to play washy washy and pussies with you.
+My name is so totally Gwen Rees at the moment.
